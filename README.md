@@ -1,1 +1,1 @@
-# TI
+# TI-84 Plus Silver Edition
